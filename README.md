@@ -63,6 +63,7 @@ Deposit is 80% of the total price
 Do not accept any form of cash
 Tasting appointment can just come to the place directly
 Doesn't accept order issues, if any issue on orders, tell them to contact customer service via phone number.
+halal certified
 
 Other products:
 Candle (2RM for each candle)
